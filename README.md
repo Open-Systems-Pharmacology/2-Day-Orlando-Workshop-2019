@@ -18,7 +18,7 @@ While the workshop does not require any prior experience with PK-Sim® & MoBi®,
 
 ## REGISTRATION
 
-To register for the workshop, please visit [EventBrite](https://www.eventbrite.com/e/2-day-pk-sim-mobi-workshop-on-pbpk-and-pbpk-based-qsp-tickets-54161831496).
+To register for the workshop, please visit [EventBrite](https://www.eventbrite.com/e/2-day-pk-sim-mobi-workshop-on-pbpk-and-pbpk-based-qsp-in-orlando-fl-tickets-55157261855).
 
 The workshop is currently restricted to 15 participants.
 
